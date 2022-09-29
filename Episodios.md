@@ -1,11 +1,7 @@
 
-Nadie Sabe Nada 3x40
+# Podcast 2/7/2016  
 
-https://youtu.be/2l4P6h7Tn1w
-
-Luis Armstrong: nacimiento del Scat.
-Primates interesantes: los mandriles.
-Matématicas: Fibonacci.
-Y el número era 42, Berto.
-
-
+Luis Armstrong: nacimiento del Scat.  
+Primates interesantes: los mandriles.  
+Matématicas: la serie de Fibonacci.  
+El número era 42, Berto.  
