@@ -16,4 +16,4 @@ El timbre de bicicleta.
 
 # Podcast 3/11/2018
 
-Crítica literaria: Bueno, bueno .. Buñuel
+Crítica literaria: Uy, Uy, Uy .. Buñuel
