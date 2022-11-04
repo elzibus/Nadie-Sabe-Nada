@@ -17,3 +17,7 @@ El timbre de bicicleta.
 # Podcast 3/11/2018
 
 Crítica literaria: Uy, Uy, Uy .. Buñuel
+
+# Podcast 24/11/2018
+
+Un cagaroo intergaláctico llamado "ouh mamma"  
