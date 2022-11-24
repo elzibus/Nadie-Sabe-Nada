@@ -1,3 +1,8 @@
+# Podcast 8/6/2014  
+
+Macaulay Culkin  
+Las vacas y el cambio climático  
+
 # Podcast 2/7/2016  
 
 Luis Armstrong: nacimiento del Scat.  
@@ -5,19 +10,19 @@ Primates interesantes: los mandriles.
 Matématicas: la serie de Fibonacci.  
 El número era 42, Berto.  
 
-# Podcast 30/6/2018
+# Podcast 30/6/2018  
 
-Histórico: el nacimiento del Samantismo.
+Histórico: el nacimiento del Samantismo.  
 
-# Podcast 9/7/2018
+# Podcast 9/7/2018  
 
 Singlot Festival.  
 El timbre de bicicleta.  
 
-# Podcast 3/11/2018
+# Podcast 3/11/2018  
 
-Crítica literaria: Uy, Uy, Uy .. Buñuel
+Crítica literaria: Uy, Uy, Uy .. Buñuel  
 
-# Podcast 24/11/2018
+# Podcast 24/11/2018  
 
-Un cagaroo intergaláctico llamado "ouh mamma"  
+Un cagarro intergaláctico llamado "ouh mamma"  
