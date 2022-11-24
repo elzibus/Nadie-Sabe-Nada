@@ -1,15 +1,3 @@
-# Podcast 8/6/2014  
-
-Macaulay Culkin  
-Las vacas y el cambio climático  
-
-# Podcast 2/7/2016  
-
-Luis Armstrong: nacimiento del Scat.  
-Primates interesantes: los mandriles.  
-Matématicas: la serie de Fibonacci.  
-El número era 42, Berto.  
-
 # Podcast 30/6/2018  
 
 Histórico: el nacimiento del Samantismo.  
